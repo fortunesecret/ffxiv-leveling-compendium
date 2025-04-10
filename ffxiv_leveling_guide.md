@@ -1,0 +1,6 @@
+# FFXIV Level 1–90 Progression Guide (ARR through Endwalker)
+
+## Levels 1–10: Starting Out in Eorzea  
+...
+*(The markdown content would be inserted here in its entirety from the previous message)*
+...
